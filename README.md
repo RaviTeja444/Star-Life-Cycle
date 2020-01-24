@@ -40,3 +40,4 @@ A Black Hole is highest form of Gravitation Collapse of a star.Nothing can escap
 
 Elements higher than iron like Uranuim and way up are formed as part of Supernova explosion which is considered as the most extreme and biggest explosion in the Universe.Extreme pressure formed which is way more than normal fusion allows it form elements higher than the stable element Iron.
 
+Visit [schoolsobservatory](https://www.schoolsobservatory.org/learn/astro/stars/cycle) for more details on Stars.
