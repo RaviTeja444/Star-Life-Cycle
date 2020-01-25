@@ -25,7 +25,7 @@ A star becoming a Black hole or not depends on its mass which is proposed by the
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;![](https://vignette.wikia.nocookie.net/terraforming/images/2/2c/Neutron_star.jpg/revision/latest/scale-to-width-down/340?cb=20150223110743) 
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(Image took from [vignette](https://vignette.wikia.nocookie.net))                    
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(Image took from [vignette](https://vignette.wikia.nocookie.net/terraforming/images/2/2c/Neutron_star.jpg/revision/latest/scale-to-width-down/340?cb=20150223110743))                    
 
 
 A Black Hole is highest form of Gravitation Collapse of a star.Nothing can escape from a black hole's gravity including light.So we can never see a blackhole because light is not reflected back but scientists understand their presence by its impact on other objects in the cosmic Universe.
@@ -36,7 +36,7 @@ A Black Hole is highest form of Gravitation Collapse of a star.Nothing can escap
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;![](https://ichef.bbci.co.uk/news/410/cpsprodpb/F8C9/production/_106398636_mediaitem106398635.jpg)
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(Image took from [ichef](https://ichef.bbci.co.uk))
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(Image took from [ichef](https://ichef.bbci.co.uk/news/410/cpsprodpb/F8C9/production/_106398636_mediaitem106398635.jpg))
 
 Elements higher than iron like Uranuim and way up are formed as part of Supernova explosion which is considered as the most extreme and biggest explosion in the Universe.Extreme pressure formed which is way more than normal fusion allows it form elements higher than the stable element Iron.
 
